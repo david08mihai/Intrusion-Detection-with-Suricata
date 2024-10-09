@@ -1,4 +1,3 @@
-Here's an enhanced and premium English version of your text:
 
 ---
 
